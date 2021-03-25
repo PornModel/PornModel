@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PornModel
+- 👋 Hi, I’m @RaimRako
 - 👀 I’m interested in Business
 - 🌱 I’m currently learning WebDesign
 - 💞️ I’m looking to collaborate on Kazakhstan
